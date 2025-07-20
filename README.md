@@ -1,1 +1,1 @@
-server dit cot : https://discord.gg/dcZqmQTSSj
+n
